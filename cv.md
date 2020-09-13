@@ -14,3 +14,9 @@
 ## Experience 
 * none
 
+## Education 
+* Youtube
+* Udemy
+
+## English
+* Pre-Intermidiate
