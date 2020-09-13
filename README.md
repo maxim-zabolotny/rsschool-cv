@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://maxim-zabolotny.github.io/rsschool-cv/cv
